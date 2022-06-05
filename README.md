@@ -1,0 +1,1 @@
+Arab Apps is a tech company specialized in software development, aims to empower a new generation of users with an exciting new social language where they can showcase, discover and stay connected in a positive and creative online environment.
